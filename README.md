@@ -15,3 +15,9 @@
  - Competências organizacionais
 
 ## Atitudes
+
+## Objetivo
+
+## Onde eu quero chegar!
+
+## Metas
